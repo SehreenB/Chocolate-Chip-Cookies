@@ -1,0 +1,1 @@
+This is the best choclate chip cookies recipe you will ever come accross! It is very easy and only requires a couple of steps. It will only take 20 minutes to prep and 10 minutes to bake. Enjoy!
